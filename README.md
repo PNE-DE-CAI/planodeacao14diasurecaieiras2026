@@ -1,0 +1,1 @@
+# planodeacao14diasurecaieiras2026
